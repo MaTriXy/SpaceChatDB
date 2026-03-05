@@ -1,9 +1,5 @@
 Use my SpacetimeDB Referral link please!!
 https://spacetimedb.com/?referral=Lethalchip
-https://spacetimedb.com/?referral=Lethalchip
-https://spacetimedb.com/?referral=Lethalchip
-https://spacetimedb.com/?referral=Lethalchip
-https://spacetimedb.com/?referral=Lethalchip
 
 
 # sv
