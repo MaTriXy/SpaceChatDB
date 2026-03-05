@@ -1,3 +1,11 @@
+Use my SpacetimeDB Referral link please!!
+https://spacetimedb.com/?referral=Lethalchip
+https://spacetimedb.com/?referral=Lethalchip
+https://spacetimedb.com/?referral=Lethalchip
+https://spacetimedb.com/?referral=Lethalchip
+https://spacetimedb.com/?referral=Lethalchip
+
+
 # sv
 
 Everything you need to build a Svelte project, powered by [`sv`](https://github.com/sveltejs/cli).
